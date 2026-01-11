@@ -1,6 +1,6 @@
 # Chedy Korbi
 
-Embeded systems & mobile undergraduate / Big data & AI student @PolytechINTL
+Embeded systems & mobile undergraduate @ISETCHARGUIA / Big data & AI student @PolytechINTL
 
 📍 La Marsa, Tunis · 🌍 Open to international opportunities  
 📧 chedykorbi2021@gmail.com · 🔗 LinkedIn
